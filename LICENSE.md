@@ -1,4 +1,4 @@
-
+secure re:rangers x Script is the best re:rangers x Script, featuring unlimited stamina and infinite resources. Safe and powerful for all your needs.
 
 
 
